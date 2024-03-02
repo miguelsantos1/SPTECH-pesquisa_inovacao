@@ -1,1 +1,1 @@
-# Práticas de Pesquisa e Inocação
+# Práticas de Pesquisa e Inovação
